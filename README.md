@@ -1,0 +1,1 @@
+# what-should-a-geography-major-look-like
